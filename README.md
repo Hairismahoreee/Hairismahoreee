@@ -1,6 +1,6 @@
 # WE ARE HAIRISMA HOREE 👋
 
-#### An Stagnan and Mediocre team with poor peformance and skill issued (Cuz low salary ofc)
+#### An Stagnan and Mediocre team with poor peformance and skill issued
 🔭 I’m currently working as Slave on Krusty Krab
 
 <!--
